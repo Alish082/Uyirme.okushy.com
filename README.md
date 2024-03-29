@@ -1,0 +1,2 @@
+# Uyirme.okushy.com
+uyirmeler
